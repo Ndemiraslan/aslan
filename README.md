@@ -1,2 +1,0 @@
-# aslan
-aslann
